@@ -1,1 +1,1 @@
-![소심타파](https://github.com/junseyeon/SOSIMTAPA/assets/44864717/11eb2efb-60b4-4c5b-baad-5c7ca0d0b548)
+![소심타파](https://github.com/junseyeon/SOSIMTAPA/assets/44864717/06fd2132-f811-43d3-9c27-17b63e597397)
